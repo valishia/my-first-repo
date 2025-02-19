@@ -1,1 +1,1 @@
-ini adalah teks random untuk praktikum
+ini adalah teks random untuk praktikum anjay

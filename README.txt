@@ -1,0 +1,1 @@
+ini adalah teks random untuk praktikum
